@@ -1,1 +1,1 @@
-👩🏻‍💻 hi, i'm ira!
+👩🏻‍💻 Hi, I'm Ira.
